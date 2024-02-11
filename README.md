@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ASN1729
 - 👀 I’m interested in travelling.
-- 🌱 I’m currently unemployed.
+- 🌱 I’m currently open to new opportunities.
 - 💞️ I’m looking to work under reputed organization.
 
 
